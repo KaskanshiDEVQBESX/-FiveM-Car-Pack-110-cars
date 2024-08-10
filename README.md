@@ -17,3 +17,6 @@ Disclaimer:
 The author of this resource pack shall not be liable for any damages resulting from the use of this pack.
 By using this project, you agree to abide by these terms and conditions.
 THE CARS ARE NOT CREATED BY ME​.
+
+DOWNLOAD LINK:
+https://drive.google.com/drive/folders/18ga2DoQN8U2OLkap0muk9AdDCIkTgzXy?usp=drive_link
